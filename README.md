@@ -64,8 +64,8 @@ Entre las características más notorias que me representan se encuentran:
 
 Si deseas ponerte en contacto conmigo o conocer más sobre mis proyectos, puedes encontrarme en las siguientes plataformas:  
 
-- 📧 **Correo:** [gatompocasangre@gmail.com](mailto:gatompocasangre@gmail.com)   
-- 🐙 **GitHub:** [github.com/Felipe-Pocasangre](https://github.com/Felipe-Pocasangre)  
+- 📧 **Correo:** [gatompocasangre@gmail.com](mailto:20240046@ricaldone.edu.sv)   
+- 🐙 **GitHub:** [github.com/Felipe-Pocasangre](https://github.com/Gatom62)  
 - 📸 **Instagram:** [instagram.com/felipe.pocasangre](https://instagram.com/felipe.pocasangre)  
 
 ✨ *Gracias por visitar mi perfil. ¡Siempre abierto a nuevas oportunidades y colaboraciones!* 🚀
